@@ -1,0 +1,2 @@
+# Kasir-Sederhans
+Kasir mudah
